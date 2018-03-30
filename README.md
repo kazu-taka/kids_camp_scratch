@@ -1,4 +1,11 @@
 # ELITES KIDS キャンプ (Scratch編)
+
+## URL
+
+### https://goo.gl/tKjZV6
+
+<br>
+
 ## 講師、TA (ティーチングアシスタント) の自己紹介
 
   - 講師
